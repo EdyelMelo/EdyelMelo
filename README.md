@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EdyelMelo
 - 👀 I’m interested in the future 
 - 🌱 I’m currently learning enginer in Brazil (☞ﾟヮﾟ)☞
-- 💞️ I’m looking to collaborate on everthing i kant and know 
+- 💞️ I’m looking to collaborate on everthing i cant and know 
 - 📫 How to reach me in twitter DM, @EdyelMelo
